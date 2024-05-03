@@ -5,7 +5,7 @@
 - 📫 How to reach me:
    - WhatsApp: (https://wa.me/358415707884)
    - Instagram: (https://www.instagram.com/aryan.m.1380/)
-   - LinkedIn: (https://www.linkedin.com/in/aryan-mohammadi-3443b1232/)
+   - LinkedIn: (https://www.linkedin.com/in/aryan-mohammadi/)
    - YouTube: (https://www.youtube.com/@freeze_Show)
    - My website:(https://aryanm1380.w3spaces.com/)
 
